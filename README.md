@@ -1,0 +1,1 @@
+# synaptik-practice-2026
